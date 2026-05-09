@@ -1,4 +1,4 @@
-
+Bear for macOS ultimate Addon: custom shortcuts & note encryption offers the most advanced Bear for macOS addon, with custom shortcuts and note encryption. Ideal for professionals.
 
 
 
